@@ -1,1 +1,1 @@
-# Codin Homepage and possibly more prototybe 
+# Codin Homepage and possibly more prototype 
